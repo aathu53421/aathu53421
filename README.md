@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @aathu53421.
+- 👀 I’m interested in games.
+- 🌱 I’m currently learning aeronauticals.
+- 💞️ I’m looking to collaborate on games. 
